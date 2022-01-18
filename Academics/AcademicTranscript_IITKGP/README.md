@@ -1,2 +1,3 @@
-# Credentials
-This repository contains my Certifications and Proofs/Links to some of my achievements.
+CGPA: 8.91/10
+
+Minor CGPA: 9.22/10
