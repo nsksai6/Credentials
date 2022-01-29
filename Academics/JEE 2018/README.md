@@ -1,1 +1,1 @@
-![JEE-1](https://user-images.githubusercontent.com/69305047/151657131-bd526ef8-dad2-4843-96bb-a519cd0fc09d.png)
+![JEE-2](https://user-images.githubusercontent.com/69305047/151657200-065e4689-1dce-40ea-ab0e-f95a44f8784a.jpg)
