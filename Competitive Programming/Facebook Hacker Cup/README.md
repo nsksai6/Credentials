@@ -1,1 +1,2 @@
-![Facebook Hacker Cup - 2021-1](https://user-images.githubusercontent.com/69305047/151657260-2a4c7ad7-c307-439b-9051-e902b0677a3c.png)
+
+![Facebook Hacker Cup - 2021-1](https://user-images.githubusercontent.com/69305047/151657449-6d85f293-d214-4575-8f47-62c25e840c4a.jpg)
